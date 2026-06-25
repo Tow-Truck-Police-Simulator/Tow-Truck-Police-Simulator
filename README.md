@@ -1,4 +1,4 @@
-### Tow Truck Police Simulator – Ultimate Police Towing Simulation Game
+### Tow Truck Police Simulator
 
 ## 🚓 Download Tow Truck Police Simulator
 
